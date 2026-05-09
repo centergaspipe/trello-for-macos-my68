@@ -1,4 +1,4 @@
-
+Enhance Trello for macOS with professional Automation for Trello for macOS - OCR scanning and widgets, the #1 automation. Includes OCR scanning and widgets for a smoother
 
 
 
